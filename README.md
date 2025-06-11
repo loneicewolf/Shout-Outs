@@ -36,6 +36,11 @@ _____
   - You Kurt Godel for doing the work on the Logic,Incompleteness Theorem, GodelMetric(named after you I believe!), etc. You will always be remembered
   - You Albert Einstein for the work on SR GR (Special,General) Relativity, and many more things. You will, like godel, also, always, be remembered.
 
+
+# To Github Users
+- Fyyree https://github.com/fyyre @fyyre 
+- Nora https://github.com/wandering-nora
+
 # ..To you...Who reads this, right now.
 Yes you. You matter. THANK you for reading this! Take care! 
 "Why thank me?" You might say..And that's easy for me to answer:
