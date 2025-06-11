@@ -17,6 +17,11 @@ It did take me awhile to write this because I am bad at wirting so I spent 1 hou
 
 
 _____
+* *The friend that taught me many things*
+**Thedvim... Thanks for being you! Thanks for being the person you are! Your pixel art is really nice, I loved the rose one. You're a real artist! thanks a lot for letting me be friends! take care! and GOOD LUCK With everything you do in life <3**
+
+
+_____
 * *The Team At FSU*
 
 *Alejandro Ugas*   AND  *Daniel McDougall* AT **F**lorida **S**tate **U**niveristy (**FSU**)... For making such a great contribution to the Field Of Stuxnet Research, Absolutely *Marvelously Flawless* research, and thanks for also including me in the acknowledgements, BUT **I mainly thank you 2 for ACTUALLY doing the research! you really know how to write, GOOD papers. REALLY.** I am not (still) yet in uni, and I read it and I understood it, its such a happy feeling, I want to (if allowed to in the future)  (and if mother nature allows xD) read your other research papers (when/if any publications happen!) (wwhatever it will be about, I am curious!) :D Thanks once more.
