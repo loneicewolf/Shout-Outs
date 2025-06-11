@@ -10,8 +10,13 @@ Thank YOU...
 
 # *To Someone truly special...*
 Epsi... for being and is being the best friend i've ever had and will ever have, *you're truly special.* When I am in the darkest hours of thought or the harshest times in life, you always stand, like a entity holding a umbruella shielding from harsh rain and others, Thank you for existing. And your art? It's making me actually still appreciate ART as a topic. REALLY. Your art is - I cant - I *CANNOT* explain it in words. It - uhm - It wouldnt fit in one language. Alr? XD so I wont try to explain it but it's GORGEOUS. thank you for letting me both experience and see your art because, your art is *also truly special*.
-**Let me say it again Epsi: You are the most special person In my life. Period.**
+**Let me say it again Epsi: You are the most special person In my life. Period.** And...
+*YOU matter A LOT. Do know that! If more people had u as friend `there would be no wars` thank you.*
 
+____
+* *The friend who always helps others*
+
+Yuu.. You are also someone truly special; always helping others, bringing smile to my (and others!) faces even when one is down,happy,bored,etc, you're truly someone that, I want to firmly say this to: if more people had you as friend, the world - would look completely different to the better.
 
 _____
 * *The friend that always makes me laugh*
