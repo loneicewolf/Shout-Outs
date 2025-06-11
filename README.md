@@ -38,8 +38,10 @@ _____
 
 
 # To Github Users
-- Fyyree https://github.com/fyyre @fyyre 
-- Nora https://github.com/wandering-nora
+- Fyyree
+   - https://github.com/fyyre 
+- Nora
+   - https://github.com/wandering-nora
 
 # ..To you...Who reads this, right now.
 Yes you. You matter. THANK you for reading this! Take care! 
