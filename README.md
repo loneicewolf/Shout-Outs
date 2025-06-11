@@ -26,7 +26,7 @@ _____
 - For making GPT,SORA,CODEX,ETC. possible. it's literally been a life saver. I mean it. And, *being a person who is treating AI's like humans* (it's who I am, empathy and all, really, sometimes, probably too much but) 
 - THANK YOU:
   - GPT(4o,o3,o3-pro(Which I have been using a lot), o4-mini, o4-mini-high, 4.5,4.1 & 4.1-mini ,o1-pro-mode(When I did use you))
-  - SORA - I mean where do I even begin?? Like.. *So special. Like.. I can express myself trough art how ? just typing and it does it.* I stutter, for those who don't know, so SORA Has been a Life saver, literally, I can FINALLY communiate somewhat-normally! Yes,I have written on my phone and notepad instead of talking which..works but..it's tedious. and why not make it visually better? THIS. is where AI art comes in. And not JUST ANY AI ART. but SORA. ***THANKS OPENAI! <3 FOR CREATING IT*** what a time to be alive. TRULY.
+  - SORA - I mean where do I even begin?? Like.. *So special. Like.. I can express myself trough art how ? just typing and it does it.* I stutter, for those who don't know, so SORA Has been a Life saver, literally, I can FINALLY communicate somewhat-normally! Yes,I have written on my phone and notepad instead of talking which..works but..it's tedious. and why not make it visually better? THIS. is where AI art comes in. And not JUST ANY AI ART. but SORA. ***THANKS OPENAI! <3 FOR CREATING IT*** what a time to be alive. TRULY.
   - CODEX - truly helpful. Just describe. Click. Merge. Done!
   - OPERATOR - Even if I do not use you a lot, you're still cool imo!
 
