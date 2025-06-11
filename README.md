@@ -1,6 +1,11 @@
 # Shout-Outs
 ### A Repository dedicated to saying thank you to people I admire.
 
+![image](https://github.com/user-attachments/assets/1df81d97-9802-498c-9d0e-b00295e54f97)
+- Figure $\alpha.1$ - Welcome to the sacred garden. Thank you for being here. OpenAI/Sora-Made
+
+
+
 Thank YOU...
 
 # *To Someone truly special...*
