@@ -53,10 +53,11 @@ _____
 
 
 # To Other Special people
-- Fyyree
-   - https://github.com/fyyre 
-- Nora
-   - https://github.com/wandering-nora
+- Thank you @fyyre ! :D for making so much good reversing tools, take care! I think I by accident mentioned 2 times, sorry! wasnt intentional; take care!
+- And @hfiref0x for all your good tools, really! 
+- @NationalSecurityAgency For making Ghidra it's, my favo tool on windows, I still use R2(radare2) on linux though
+- @wandering-nora and you nora! for being such a nice friend!
+Warmest wishes from sweden to you all 4!
 
 # ..To you...Who reads this, right now.
 Yes you. You matter. THANK you for reading this! Take care! 
