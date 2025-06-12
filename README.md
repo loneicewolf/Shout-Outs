@@ -52,7 +52,7 @@ _____
   - You Albert Einstein for the work on SR GR (Special,General) Relativity, and many more things. You will, like godel, also, always, be remembered.
 
 
-# To Github Users
+# To Other Special people
 - Fyyree
    - https://github.com/fyyre 
 - Nora
