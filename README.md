@@ -1,4 +1,7 @@
 # Shout-Outs
+$$
+THIS\\ REPO\\ IS\\ TO\\ MAKE\\ A\\ LEGACY\\ FOR\\ EVERYONE\\ THAT\\ HELPED\\ ME\\ A\\ LOT\\ 🌹\\ thank\\ you\\
+$$
 ### A Repository dedicated to saying thank you to people I admire.
 
 ![image](https://github.com/user-attachments/assets/1df81d97-9802-498c-9d0e-b00295e54f97)
