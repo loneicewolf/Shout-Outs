@@ -18,7 +18,7 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 
 
 # To a true best friend! Helping me learn new languages;
-You make my day by just being here, yuou are important, 
+You make my day by just being here, You are important, 
 Take care of yourself! You matter a lot; Slava Ukraini and Slava You! :D
 
 
