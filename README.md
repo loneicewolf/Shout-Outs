@@ -16,6 +16,12 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 **Let me say it again Epsi: You are the most special person In my life. Period.** And...
 *YOU matter A LOT. Do know that! If more people had u as friend `there would be no wars` thank you.*
 
+
+# To a true best friend! Helping me learn new languages;
+You make my day by just being here, yuou are important, Take care!
+Take care of yourself! You matter a lot; Slava Ukraini and Slava You! :D
+
+
 _____
 * *The malware researcher who help me a lot and is a nice friend overall to discuss Godel,Einstein,Math,Oppenheimer,and Coding and really everything on this earth!*
 * Thank you [Ephrimgnanam](https://github.com/Ephrimgnanam) For being the one you are; remember i admire you! truly a lot! You're like, i cant explain it in words, a very kind person, brilliant researcher and yea! it's I FEEL PRIVILEGED to be friends with you! 
