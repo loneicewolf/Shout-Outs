@@ -21,8 +21,13 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 You make my day by just being here, You are important, 
 Take care of yourself! You matter a lot; Slava Ukraini and Slava You! :D
 ..Even if me not chatted much with you! I still respect and really admire you! Do know that, tovarich! Take care, and I might say that many times xD anyway!
-Jane out! __You matter, Lots! <3__
+Jane out! __You matter, Lots! <3__ - Spasibo tovarich!
 
+
+# To a very special friend!
+You have always made me smile, each time im down/sad or just, not top notch, you always positive, you always very interesting to chat with too! and fun to chat with.
+Thanks so much for being here "Goose"! :D You're a real comrade; Know that!
+Spasibo tovarich!
 
 
 _____
