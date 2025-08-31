@@ -19,6 +19,7 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 
 
 # To a best friend which is super kind! 
+## Thank You Kasumi!
 You're always kind and helpful! Thanks for being here. Really.
 You're truly a golden friend, if more people would have a friend like you, there would, quite **literally**, be no wars!
 Thank you! You are also super fun to chat with! 
