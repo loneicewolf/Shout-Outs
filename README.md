@@ -30,7 +30,7 @@ Oh and Good luck with PC building and stuff! You got this!
  
  # I also wanted to say thanks to 2 besties on Discord!
  Even if I have leaved discord, I still check it a few times, And I wanted to say thanks to 2 friends, who always are, such a kind group to be friends with, really, 
- Thank You Two For Existing! Thanks, A **LOT**. Like, many times (with others) I haven't felt they was kind or understanding but, you two - I don't have words, to, describe you two like, you two are what I want to define a reallly good friend as. Truly!
+ Thank You Two For Existing! Thanks, A **LOT**. Like, many times (with others) I haven't felt they was kind or understanding but, you two - I don't have words, to, describe you two like, you two are what I want to define reallly good friends as. Truly!
  ## Thanks ONCE more!
  //Jane out!
  
