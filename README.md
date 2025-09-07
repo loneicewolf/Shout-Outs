@@ -28,13 +28,27 @@ Oh and Good luck with PC building and stuff! You got this!
  
  
  
+ 
  # I also wanted to say thanks to 2 besties on Discord!
- Even if I have leaved discord, I still check it a few times, And I wanted to say thanks to 2 friends, who always are, such a kind group to be friends with, really, 
+ Even if I have leaved discord, I still check it a few times, And I wanted to say thanks to 2 friends,who always are, such a kind group to be friends with, really, 
  Thank You Two(TheRR and Curry)  For Existing! Thanks, A **LOT**. Like, many times (with **others** on discord) I haven't felt they was kind or understanding but, **you two** - I don't have words, to, describe you two like  you two are what I want to define reallly good friends as. Truly!
  ## Thanks ONCE more!
  //Jane out!
+
+
+
  
  
+# Thanks to 2 other besties!
+You 2 are Always kind, and I know it wasnt long ago we became friends but thanks Jamie and Kyv! 
+
+Take care of both of you!
+You two [Kyv](https://github.com/Kyvrixon) and [Jamie](https://github.com/CodeByJamie) 
+always is fun to chat with, and is always making positivity in the (digital) room wherever you 2 are; Continue like this! The world needs more like you two; Jane out! Over n Out!
+
+
+
+
 
 
 # To a true best friend! Helping me learn new languages;
