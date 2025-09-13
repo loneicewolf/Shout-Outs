@@ -17,6 +17,12 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 *YOU matter A LOT. Do know that! If more people had u as friend `there would be no wars` thank you.*
 
 
+# A thank you to someone called 'V'
+You have always been there, always positive, each time one is down, and you exist, one is not down anymore, like - you just existing makes people happy - Thanks for being here V.
+You are truly special; very special;
+Jane out!
+
+
 
 # To a best friend which is super kind! 
 ## Thank You Kasumi!
