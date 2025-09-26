@@ -17,7 +17,7 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 *YOU matter A LOT. Do know that! If more people had u as friend `there would be no wars` thank you.*
 
 # To a very special friend known as "Yuu"
-You always is there, listening, understanding, truly what a friend should do <3 I cant explain how much I want to say "THANK YOU" in so so many words, so I decided to just say, THANKS A LOT for listening when I speak in mic(which doesnt happen often due to the speech problem i have but, thanksa  lot <3 u always, so, understanding, really!) And each time I chat with u ur really making one happy, know that - Yuu! And also:
+You always is there, listening, understanding, truly what a friend should do <3 I cant explain how much I want to say "THANK YOU" in so so many words, so I decided to just say, THANKS A LOT for listening when I speak in mic(which doesnt happen often due to the speech problem i have but, thanks a lot <3 u are always, so, understanding, really!) And each time I chat with u ur really making one happy, know that - Yuu! And also:
 IF more people had a "Yuu" as friend, there wouldn't be any wars! 
 # Thanks for being here once more, Yuu - You are the best!
 
