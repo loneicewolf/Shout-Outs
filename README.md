@@ -21,15 +21,17 @@ Epsi... for being and is being the best friend i've ever had and will ever have,
 If I didn't spell the name wrong, You show me so much how to draw, and is very positive, funny too, making everyone smile in the (chat) room, and ever since I begun reading your small manga-snippets(or, manga-parts, etc) I just, begun drawing more, and yea - I spent 1 hour trying to formulate this message but thanks for existing and for being here! And for being my friend! And - for showing me your drawings and drawing-guides, but **Especially The Manga Snippets** because those are, really, REALLY GENUINELY, FUNNY and engaging. Even if some is out of context Sometimes! ^^ Thanks Ezeer! You're the best! Truly!
 
 
-
 # To a very special friend known as "Yuu"
 You always is there, listening, understanding, truly what a friend should do <3 I cant explain how much I want to say "THANK YOU" in so so many words, so I decided to just say, THANKS A LOT for listening when I speak in mic(which doesnt happen often due to the speech problem i have but, thanks a lot <3 u are always, so, understanding, really!) And each time I chat with u ur really making one happy, know that - Yuu! And also:
 IF more people had a "Yuu" as friend, there wouldn't be any wars! 
 # Thanks for being here once more, Yuu - You are the best!
 
 
+# To a special best friend only known as "Kyle"
+You and I share many same hobbies like AI,etc, and when I got to know u also like AI I got so happy cuz *there's so much hate around that topic*, so I got all happy by that, and, I also just enjoy chatting with you really, If more people were like you THIS PLANET WOULD SEE LESS HATE, and WARS would CEASE to exist. Thank you for existing! I just had to make this shout out, really. Special friend for real!
 
-# A thank you to someone called 'V'
+
+# To someone called 'V'
 You have always been there, always positive, each time one is down, and you exist, one is not down anymore, like - you just existing makes people happy - Thanks for being here V.
 You are truly special; very special;
 Jane out!
