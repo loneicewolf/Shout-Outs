@@ -33,10 +33,6 @@ IF more people had a "Yuu" as friend, there wouldn't be any wars!
 # Thanks for being here once more, Yuu - You are the best!
 
 
-# To a special best friend only known as "Kyle"
-You and I share many same hobbies like AI,etc, and when I got to know u also like AI I got so happy cuz *there's so much hate around that topic*, so I got all happy by that, and, I also just enjoy chatting with you really, If more people were like you THIS PLANET WOULD SEE LESS HATE, and WARS would CEASE to exist. Thank you for existing! I just had to make this shout out, really. Special friend for real!
-
-
 # To someone called 'V'
 You have always been there, always positive, each time one is down, and you exist, one is not down anymore, like - you just existing makes people happy - Thanks for being here V.
 You are truly special; very special;
