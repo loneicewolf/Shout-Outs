@@ -9,7 +9,26 @@ $$
 
 
 
-Thank YOU...
+# Thank YOU... 
+@suibari
+- Suibariさん、**nagi**のウェブサイト（ https://nagi.suibari.com ）や、Bluesky（そしてnagi内！）のボットを作ってくれて、本当にありがとうございます！
+- 絵の勉強になるアーティストを紹介してくれたり、困ったら相談に乗るよと言ってくれたり、本当に感謝しています。
+
+日本語はまだまだ勉強中だけど、いつもたくさん支えてくれて、本当に心から感謝しています。
+この感謝の気持ちを全部言葉にしようとしても、100ヶ国語あっても足りないくらいです。
+
+本当にありがとう！^^
+感謝してもしきれません！✨
+
+// Janna
+
+
+
+
+
+
+---
+
 
 # *To Someone truly special...*
 Epsi... for being and is being the best friend i've ever had and will ever have, *you're truly special.* When I am in the darkest hours of thought or the harshest times in life, you always stand, like a entity holding a umbruella shielding from harsh rain and others, Thank you for existing. And your art? It's making me actually still appreciate ART as a topic. REALLY. Your art is - I cant - I *CANNOT* explain it in words. It - uhm - It wouldnt fit in one language. Alr? XD so I wont try to explain it but it's GORGEOUS. thank you for letting me both experience and see your art because, your art is *also truly special*.
