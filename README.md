@@ -9,7 +9,7 @@ $$
 
 
 
-# Thank YOU... 
+# Thank YOU... Suibariさん
 @suibari
 - Suibariさん、**nagi**のウェブサイト（ https://nagi.suibari.com ）や、Bluesky（そしてnagi内！）のボットを作ってくれて、本当にありがとうございます！
 - 絵の勉強になるアーティストを紹介してくれたり、困ったら相談に乗るよと言ってくれたり、本当に感謝しています。
