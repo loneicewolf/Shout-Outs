@@ -1,4 +1,3 @@
-# Shout-Outs
 $$
 THIS\\ REPO\\ IS\\ TO\\ MAKE\\ A\\ LEGACY\\ FOR\\ EVERYONE\\ THAT\\ HELPED\\ ME\\ A\\ LOT\\ 🌹\\ thank\\ you\\
 $$
@@ -6,6 +5,43 @@ $$
 
 ![image](https://github.com/user-attachments/assets/1df81d97-9802-498c-9d0e-b00295e54f97)
 - Figure $\alpha.1$ - Welcome to the sacred garden. Thank you for being here. OpenAI/Sora-Made
+
+---
+
+$$
+ Thank\ \ You\\ \\ \\ 忍野にゃんこ
+$$
+
+# Thank You *忍野にゃんこ*
+For being such a precious friend, 
+You make me smile and You make my days, and weekends, by just being here. We might not have chatted for many weeks, but each time I chat with you I feel at ease and smile!
+Thank you for being You 😸️ And take care of yourself, because there is only one person like you on this planet, and that is you 🤗️
+
+I just had to make a shoutout to you; Because you always come with good ideas and suggestions, 
+as well as, you are so fun to chat with!
+Take Care!
+Thanks once more for being here,
+
+//*Janna*
+
+
+
+---
+
+
+```
+
+
+
+
+
+
+
+
+
+
+
+```
 
 
 
