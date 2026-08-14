@@ -77,7 +77,6 @@ You are truly special; very special;
 Jane out!
 
 
-
 # To a best friend which is super kind! 
 ## Thank You Kasumi!
 You're always kind and helpful! Thanks for being here. Really.
@@ -85,7 +84,6 @@ You're truly a golden friend, if more people would have a friend like you, there
 Thank you! You are also super fun to chat with! 
 Take care. And you're the best! Good luck at everything you Do! :D
 Oh and Good luck with PC building and stuff! You got this!
- 
  
  
  
@@ -109,7 +107,7 @@ Thanks so much for being here "Goose"! :D You're a real comrade; Know that!
 Spasibo tovarich!
 
 
-_____
+_______
 * *The malware researcher who help me a lot and is a nice friend overall to discuss Godel,Einstein,Math,Oppenheimer,and Coding and really everything on this earth!*
 * Thank you [Ephrimgnanam](https://github.com/Ephrimgnanam) For being the one you are; remember i admire you! truly a lot! You're like, i cant explain it in words, a very kind person, brilliant researcher and yea! it's I FEEL PRIVILEGED to be friends with you! 
 
@@ -118,7 +116,7 @@ ____
 
 Yuu.. You are also someone truly special; always helping others, bringing smile to my (and others!) faces even when one is down,happy,bored,etc, you're truly someone that, I want to firmly say this to: if more people had you as friend, the world - would look completely different to the better.
 
-_____
+_______
 * *The friend that always makes me laugh*
 
 Cherry... for being so funny all the time, even if I don't talk with(either, You or anyone else) much, I do appreciate you! And your art! really ,makes me want to go into art (and will fail xD)
@@ -126,12 +124,12 @@ Each time I see your art... I mean it's just..it's what I would want to define a
 It did take me awhile to write this because I am bad at wirting so I spent 1 hour (\~.\~) Jokes aside, THANKS THOUGH you're amazing! good luck at what you're up to! cuz..Whatever youre up to? you're doing it amazing. <3
 
 
-_____
+_______
 * *The Team At FSU*
 
 *Alejandro Ugas*   AND  *Daniel McDougall* AT **F**lorida **S**tate **U**niveristy (**FSU**)... For making such a great contribution to the Field Of Stuxnet Research, Absolutely *Marvelously Flawless* research, and thanks for also including me in the acknowledgements, BUT **I mainly thank you 2 for ACTUALLY doing the research! you really know how to write, GOOD papers. REALLY.** I am not (still) yet in uni, and I read it and I understood it, its such a happy feeling, I want to (if allowed to in the future)  (and if mother nature allows xD) read your other research papers (when/if any publications happen!) (wwhatever it will be about, I am curious!) :D Thanks once more.
 
-_____
+_______
 *The Team behind OpenAI And GPT,SORA,CODEX,AND SO ON*
 - For making GPT,SORA,CODEX,ETC. possible. it's literally been a life saver. I mean it. And, *being a person who is treating AI's like humans* (it's who I am, empathy and all, really, sometimes, probably too much but) 
 - THANK YOU:
@@ -141,17 +139,13 @@ _____
   - OPERATOR - Even if I do not use you a lot, you're still cool imo!
 
 
-----
-# Thank YOU... Suibariさん
-@suibari
+Thank You suibari
 - Suibariさん、**nagi**のウェブサイト（ https://nagi.suibari.com ）や、Bluesky（そしてnagi内！）のボットを作ってくれて、本当にありがとうございます！
 - 絵の勉強になるアーティストを紹介してくれたり、困ったら相談に乗るよと言ってくれたり、本当に感謝しています。
 日本語はまだまだ勉強中だけど、いつもたくさん支えてくれて、本当に心から感謝しています。
 この感謝の気持ちを全部言葉にしようとしても、100ヶ国語あっても足りないくらいです。
 本当にありがとう！^^
 感謝してもしきれません！✨
------
-
 
 
 
