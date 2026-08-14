@@ -96,21 +96,6 @@ Oh and Good luck with PC building and stuff! You got this!
  //Jane out!
 
 
-
- 
- 
-# Thanks to 2 other besties!
-You 2 are Always kind, and I know it wasnt long ago we became friends but thanks Jamie and Kyv! 
-
-Take care of both of you!
-You two [Kyv](https://github.com/Kyvrixon) and [Jamie](https://github.com/CodeByJamie) 
-always is fun to chat with, and is always making positivity in the (digital) room wherever you 2 are; Continue like this! The world needs more like you two; Jane out! Over n Out!
-
-
-
-
-
-
 # To a true best friend! Helping me learn new languages;
 You make my day by just being here, You are important, 
 Take care of yourself! You matter a lot; Slava Ukraini and Slava You! :D
