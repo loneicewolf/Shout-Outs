@@ -139,16 +139,6 @@ _______
   - OPERATOR - Even if I do not use you a lot, you're still cool imo!
 
 
-Thank You suibari
-- Suibariさん、**nagi**のウェブサイト（ https://nagi.suibari.com ）や、Bluesky（そしてnagi内！）のボットを作ってくれて、本当にありがとうございます！
-- 絵の勉強になるアーティストを紹介してくれたり、困ったら相談に乗るよと言ってくれたり、本当に感謝しています。
-日本語はまだまだ勉強中だけど、いつもたくさん支えてくれて、本当に心から感謝しています。
-この感謝の気持ちを全部言葉にしようとしても、100ヶ国語あっても足りないくらいです。
-本当にありがとう！^^
-感謝してもしきれません！✨
-
-
-
 _____
 # To Legacies
 - *Kurt Godel & Einstein* - You two may not (or may? in your own unique ways!) be here now, but I wanted to thank:
