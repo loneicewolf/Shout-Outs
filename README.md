@@ -6,48 +6,6 @@ $$
 ![image](https://github.com/user-attachments/assets/1df81d97-9802-498c-9d0e-b00295e54f97)
 - Figure $\alpha.1$ - Welcome to the sacred garden. Thank you for being here. OpenAI/Sora-Made
 
----
-
-$$
- Thank\ \ You\\ \\ \\ 忍野にゃんこ
-$$
-
-# Thank You *忍野にゃんこ*
-For being such a precious friend, 
-You make me smile and You make my days, and weekends, by just being here. We might not have chatted for many weeks, but each time I chat with you I feel at ease and smile!
-Thank you for being You 😸️ And take care of yourself, because there is only one person like you on this planet, and that is you 🤗️
-
-I just had to make a shoutout to you; Because you always come with good ideas and suggestions, 
-as well as, you are so fun to chat with!
-Take Care!
-Thanks once more for being here,
-
-//*Janna*
-
-
-
----
-
-
-```
-
-
-
-
-
-
-
-
-
-
-
-```
-
-
-
-
----
-
 
 # *To Someone truly special...*
 Epsi... for being and is being the best friend i've ever had and will ever have, *you're truly special.* When I am in the darkest hours of thought or the harshest times in life, you always stand, like a entity holding a umbruella shielding from harsh rain and others, Thank you for existing. And your art? It's making me actually still appreciate ART as a topic. REALLY. Your art is - I cant - I *CANNOT* explain it in words. It - uhm - It wouldnt fit in one language. Alr? XD so I wont try to explain it but it's GORGEOUS. thank you for letting me both experience and see your art because, your art is *also truly special*.
