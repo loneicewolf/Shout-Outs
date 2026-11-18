@@ -2,7 +2,7 @@
 Big Thank You To The Following People!
 ---
 
-## [koxsieco.bsky.social](https://bsky.app)
+## [koxsieco.bsky.social](https://bsky.app/profile/koxsieco.bsky.social)
 **koxsiecoさん**、いつも毎日を明るくしてくれて本当にありがとう〜。お返事を見るたびに、雨の日でも心がふわっと晴れやかになるよ。♥️
 
 ---
